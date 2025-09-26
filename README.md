@@ -34,7 +34,7 @@ My long-term vision is to **bridge technology, markets, and entrepreneurship** b
 ---
 
 ## 📫 Let’s Connect
-- 💼 [LinkedIn](https://www.linkedin.com/in/srinathsanjeeva)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/i-sanjeeva-srinath)  
 - 📂 [GitHub Projects](https://github.com/srinathSanjeeva)  
 
 ---
